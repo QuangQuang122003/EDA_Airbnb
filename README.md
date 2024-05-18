@@ -1,0 +1,1 @@
+Rút ra những nhận xét, kết luận thông qua hình ảnh trực quan. Từ đó đưa ra những định hướng cho doanh nghiệp và cung cấp những thông tin hữu ích cho khách du lịch và những chủ nhà muốn đầu tư vào thị trường Airbnb.
